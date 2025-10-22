@@ -60,8 +60,7 @@ I’m passionate about bridging business strategy with technology execution — 
 
 ---
 
-> _"Technology is most powerful when aligned with purpose, strategy, and people."_  
-> — Rohit Sharma  
+> _"Technology is most powerful when aligned with purpose, strategy, and people."_   
 
 ---
 
